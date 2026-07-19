@@ -89,166 +89,166 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 太太乐燃气炉(ttl)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显太太乐燃气炉(ttl)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 太太乐燃气炉(ttl)全国服务网点查询：
-?北京市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/539eed94145790b85d6a86c8cdbbce87cf3a8b47
+?北京市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/097eed3812cc71e0d076c1476d52a2a4440bde0b
 。
-南京市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/eeb89b8381951d0f5a79e74ea0ca8bc2c647942c
+南京市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/cd0eb34b57ea2766d719c1c8ffd6d209472f441e
 。
-秦皇岛市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/e2a420add3bad441aa23bc8807fcd8862dc13a20
+秦皇岛市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/fa8d24c021b550af26a250cf28bda76d823a2bd2
 。
-珠海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/2b62382e584b7f5a8fbf954c0c00d4f32abc5c56
+珠海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/c4c09d3b80d3cf0636d7985c8be44cb31ea32411
 。
-安康市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/8daf76e390badb613ed08a789e169b444e0597ff
+安康市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/e70c84c9e4305c71d5252c9ec9b44c3b2907646e
 。
-安庆市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/68a15a1b620127026307e5e4f68d5aa288cc94c7
+安庆市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/b26e0fde1041333f62082fcb3d0affa459f33de0
 。
-鞍山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/710fe1aecdd310ab819b705c7fddc70011981d84
+鞍山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/2893339ad6ac11b4c4e3a91c02ec1f71e82ad7d0
 。
-安阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/0a21c361dbe6b8c96db97484d5535fb7b5aeb097
+安阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/ee34a5b05cb2bc83dc044b09a618b16b0509ea2e
 。
-巴中市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/9160503583eb17a20b985a903839051f56ebf011
+巴中市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/b453082b0fcbf8eb01a795959b0ef160adbb9d1d
 。
-百色市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/7e0e5e7d9c55f97d28b95f68a145c133f4684369
+百色市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/6e8249408c36b1c6454b970ac75713c6d4fffb02
 。
-蚌埠市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/cdda76da22b19b658464cb752c7a24958e4d1138
+蚌埠市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/555affe5dc18bd589f0b8940a6cc6c3a6d5d9f59
 。
-保定市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/129a2b70a3bfbf945e9e56ec45a6ef029ceb8b9c
+保定市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/1e0f0fc3d0313afd40acda979fe5762131ecb390
 。
-宝鸡市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/ee88080bfb68659b6a885ee3cc376cafa7ac34a5
+宝鸡市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/089b3b7731b27f02d60a415b2648f95ac169de7b
 。
-保山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/ed4cf65ea35ca859b5455aca0cf12eee73606ca7
+保山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/9f2e9b3dfbafe60f783842c20d8264fb61a8b3ec
 。
-包头市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/11d5608eced6abcf306da4c01de76afff87f183d
+包头市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/be4b80713afbd95b532ba5719d17b1cf9a83e972
 。
-北海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/1ecd0416b4e457e4a0f1dffe58cb7bc89cb1270d
+北海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/a5f29b15b612deac812ce61bdac8c3c61a5effc8
 。
-本溪市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/5a9816973365ca23278ddc7576359a4223a395cf
+本溪市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/d5a4534adf2dc003873e392c919e86725d0765da
 。
-滨州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/607833eb2db2421b4c1fea56c6c56c556d9032cc
+滨州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/9726d2c89c2e1a141da2391ee990bd4f8fc19c3f
 。
-博罗市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/44843fb28ac24a048639f7bf07dd02eaa7b9e955
+博罗市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/YiranYu-bc9/rgodpj/commit/c5bf36471314a6deed3c46452e39e339ead79b80
 。
-沧州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a44fe301a19c29bb49fc51edc2f381eaad12a474
+沧州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/425f8b223f4fd59f7f45452c183b9562bcb84143
 。
-长春市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/1af7eb16f72780a46afc8840303e8703009690c2
+长春市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/ef602414cf43957fc6fa35e3f64901117c074a0f
 。
-常德市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/cbc8a1ac10abe8b618ac81a5afa1d2741a47974f
+常德市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/601896176d569ddaac229455a7061020dc657366
 。
-长葛市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/0921dcffef5906c818f1dd789015df2a18d28990
+长葛市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/1da8374865af5999f64220b046d46081318d1d3e
 。
-长沙市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/f447dc8bcc776edee03f7ab2831581df680b3670
+长沙市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/80c4df4bb629bf4d9a538d9d721c6c37ed6198e6
 。
-常熟市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/higginssara654/gexwcz/commit/696720a35b2b4c93fac1b6dd72fcca60e2025c66
+常熟市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/higginssara654/gexwcz/commit/87d429e5ffa7459d559d1a2b768cd46d1a998a5c
 。
-长兴市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/466c257416f9ca8541e0867b14cb3ba665fe3b08
+长兴市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5d94c0cbfb8f4ee24eed249309cecfa86b6676e4
 。
-长治市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a419e01fe8f10f71f4e24bfb1ac3db182272ca1f
+长治市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/4c9de25f4a4c1085e1c7bdb06649959783b79fe7
 。
-常州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/563acc48cc8ff4e36a7fe7fe77483fa5bd5730e5
+常州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/b3679debfe5cae31cdbfc0ae6b40ad2a1815b865
 。
-巢湖市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/af1d945008cb077ebc10f87ea68fbea1ab4f1d8f
+巢湖市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/081ac5b24e32a36d2b5c47f2d965412c17f6a218
 。
-朝阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/cc7750e7b09ea8dc26239f6e4beea223e74a4384
+朝阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/a2fa977f8e8b5a62832f2fbaa04d1b383390cbcb
 。
-潮州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/80e66e9c40dd75fbf6840e942fb76011b78cce11
+潮州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/66f7c29a777a63e31dac21c6642451bb22fbff0e
 。
-郴州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7bd7eaa3504677a14f1e3c00107a54690a300f13
+郴州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/66a3cccbf54a96325f60b5eff246fd86915a896b
 。
-承德市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/abc09ae44004e72e7b206e2e6867fd27fa89af4f
+承德市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/6449453276ee618d59cb41c059691ef0883b62ea
 。
-成都市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/c9c0102ccde7dbf9599e2572bfe2e50111e7286f
+成都市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/3bc679774d8b28d4a61bb59401ef89941db80176
 。
-池州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/23d3842801977fae34f2d2ff2936c8c17e6d41ac
+池州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/eadd745bf806804fc95c9af7d01550f27c137ad9
 。
-崇左市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e7502f9d33a2afd0dba239de388be6df507ef481
+崇左市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/7dab6f78f7cbb0fb4ae915c47fcdef8c68e56cdd
 。
-滁州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/dabf618f9ae0b0f31b2a74e90433dd5460d4a41f
+滁州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/c2e5d2d39310e1172beaf30f5bf47d7312dcf417
 。
-慈溪市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/4fad6c8554548dc94db5b8bcad2c23616fff8ed9
+慈溪市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/24d9bc65411e5eb62e08712cc2b994cc16ab4e69
 。
-大丰市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/488aa45124934bc1cf7c2befafef89d72d7b85d3
+大丰市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/higginssara654/gexwcz/commit/ae75306294f39cbe4c2af5294a6659434c3c4424
 。
-大理市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/8df0ce03c8aba73937f3c54cc8e62ee10ad81bfd
+大理市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/03efbfc9e1f6132fe34b702f60408b7a9035dea3
 。
-大连市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a857c669ae92abc8cb1c046e951f75e3e3b729f2
+大连市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/40154edef025b8405a32e213c84dbab9d8acc153
 。
-大庆市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/6db837cd84d59797559279061546c94d4e3c5ac1
+大庆市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/4f6aadd9936c47521f1bdeafdabf4a3e41edcb05
 。
-大同市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e10ad14ff4d4b738c0b886f188486ee64a112a8a
+大同市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/29625ba60521f9b0ce98240f698d8c1290752787
 。
-达州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/84a0d40b3391da51c32e1fcd702974e0f6496998
+达州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/87e9939d07a476583e01e79c01cebfb41fc3b140
 。
-丹东市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/fc461e73a9e7d7e316c3f969ffaabc012e8a543c
+丹东市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/c2b8898e3a8d21c32f964dab0ebf9c936bb4d39d
 。
-德清市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/46962854d1aff542bd9eaa0b772780585e38bc68
+德清市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/60610f996e1fe6b00c639b14a732a6d687c6f743
 。
-德阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/10abf2cc302508fd946f6b958dd5b50a0cfda0b2
+德阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/470c33c1e76d932a63fa3049dac856d0077dccf8
 。
-德州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/0f11dd00d085df4faa74016907b6dd6956c0ab38
+德州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/higginssara654/gexwcz/commit/f4be0f7dc5e820f1858c20c7210f0ea48dbe76f6
 。
-定州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a8cb0f0f4b9bad3d4fbbdaf9ea0c68ba0fc9f15a
+定州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/73c308b6691bbfe49068759c57a3f5649b03321d
 。
-东海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/83a3a41b4bf309c47a4584bc7fbc4d8f29dac514
+东海市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/89e960b9cdbf54c7cb23073b97b0d0bd7f9062a3
 。
-东台市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5000bbaf7f27ab98014da6d2aa5bf01072c4aebd
+东台市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/d885be33f16748dde7c284914f0c31de4a88f221
 。
-东营市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5d9222c22d41f42dbfec09d1769ac52db199e8a8
+东营市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/28e733ac21e1e12696bf63fe56dc1936ba18d736
 。
-东莞市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9e6a25e138bf625cc4674039506d5719fd1f3926
+东莞市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/81dc56f0cade2ac145574ea5479fffa4084f9f0f
 。
-鄂尔市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/90359fae4e4c4871e3aae869627f56b06434196e
+鄂尔市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/11e3d13fc46670bfd8a99ad421c821d8f2d00eb2
 。
-鄂州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/f72606a5e6820e42a13ebfa2b6f218d9569d2bfc
+鄂州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/0f05f11e372938b7b7cdec11793ec07c0487e7a4
 。
-恩施市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/072823cc124227c196c213be2648272006742f74
+恩施市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/dc812f34d6563f9e122bae03766fa3146256ea3e
 。
-防城港市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/abc990c8f040c211628207cd5d246ea8b478b84b
+防城港市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/7097c7d2c75f5b0f2c4a1a07295c254500ff8998
 。
-佛山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/e4d7969a2257ce5c51e2d08ff2b55bab16514e12
+佛山市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/66e03a49429915d4ef11458bc23bdce1c12cf83c
 。
-抚顺市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/6d8b85219cef6c2540e5d407663b58a78687c0e8
+抚顺市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/11a9a24ff8aeb7b8da617125771497e795ab01ce
 。
-阜新市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/999cecd5afb82803b4517c157ec4d38e26a11493
+阜新市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/12ed7358f6ea5d95b890884de241a275b4b0a104
 。
-阜阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/3d9f55bc2bb86000044e444cf9d28131be701e73
+阜阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/higginssara654/gexwcz/commit/b20c15da3286f04e7cb1852a2ca3725c13223037
 。
-抚州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/1e4615875e1d7c37e30d76e10c6759960b46e9f0
+抚州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/f43d72800470a52cd8bd2bafea15b336faa18c76
 。
-福州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a8725d9fd7aa94d140e2abd3e6de146496e3b6bc
+福州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/higginssara654/gexwcz/commit/2b8e861a83d59f79d4bc69269c4ad61c6a59ee4c
 。
-赣州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/e3cadb02b5a29766941d2d4e13b476a8173a7836
+赣州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/6b88c28e968469865f76c5546bdb4c82affc5f9d
 。
-馆陶市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/f38ee40d505251d29da3bfcacee871a3f09e99b2
+馆陶市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/5fca3aa4a74bb7d4ff990239a3b065e64479096f
 。
-广安市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/higginssara654/gexwcz/commit/254216550875e24fd7c23b4c15c60541ef887d80
+广安市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/f6a5aa7b8a97f18943c458b285c9bcb255dbe7f5
 。
-广元市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/5b7573dc3127409d3178fc2138a765c053cc8096
+广元市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/b412e298a113edf4bf389c1cfb728ae92af1c56f
 。
-广州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/e4e731ddb32a5f4d641e536103ea3686618f16c2
+广州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/76256677db6d9ad41684c2c7f60763d53b3a9197
 。
-贵港市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/ba13292b895af4ec6a74f82e5309bb4dfe9f09e0
+贵港市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/8309351172e5bfed7a4488a5735053c7ccf056d3
 。
-桂林市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7af083aac791d8dc0577711122f1882d5c763eac
+桂林市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/0866d3b9c4c915f83ab853caa3f0f5bd91c0a5ca
 。
-贵阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/2aeaf108295eddcca31558ef0a88558da3fb4093
+贵阳市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/higginssara654/gexwcz/commit/35b634d741dc439c08165e7d5d5b371b64cbcf46
 。
-哈尔滨市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/c95bb97b3dc914cc591b7e1318582615bfc989da
+哈尔滨市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/9d8d6df54c1340bb2b3ab27c65be3a25a2eefdee
 。
-海安市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/9fa4126acc7ff020de9718802c03a00e189b0d58
+海安市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/22719d9994ceeac2c26514316e3ae21a37fcebdd
 。
-海口市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/ac88352689742a23630307d46d36e8c789ef8648
+海口市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/d766a92adc1cb1c8a55ed4a1f073e6093d0b1bd5
 。
-海门市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/higginssara654/gexwcz/commit/09e30dfa7e4c0d464a9aabefbbbd9d62b9c53433
+海门市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/3d0354fec8958125c0095bd54b0841388d79af58
 。
-海宁市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/28b692d1f6ac7f2464bdbb153fea65a85e00139a
+海宁市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/184e7d683dfd73c1691002b0dc8df7423669a237
 。
-邯郸市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/53b5bc7a4a1b4397e2a54ee022d5dfe93579f9b7
+邯郸市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/higginssara654/gexwcz/commit/7766fc576a88cb2213a712061f55483eb031f14c
 。
-汉中市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/40a88e64558c94625f4d9206a3303e66f2d79818
+汉中市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/35913778db89cae46965edd3ae94c3e05b67bf28
 。
-杭州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/344c8ea9d0da74c004280b2727190366ec2b3ee8
+杭州市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/79dc98f28e065b343996b8df08475e74224a1430
 。
-鹤壁市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/286b8d127afc04cb370afe666ef40312b89eee2a
+鹤壁市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/67b3b7cc5c2e524fb26f3c9e77db3f3e33846f59
 。
-河池市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9afebefd9d7ba63d7d41f36b8ab4bfc643391778
+河池市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ac79eb16bc3967f5a4b671ebf913bad97cc01a9d
 。
-合肥市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9d0a0255885c10220f8b686e6ab4e79221b2cfdb
+合肥市太太乐燃气炉(ttl)售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4d3bd4ddcf4d2fb4411bedff8174aa5d12864879
